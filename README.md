@@ -7,4 +7,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
-* Abinaya, [Linkedin]([https://www.linkedin.com/in/gilang-adhan](https://www.linkedin.com/in/kheira-abinaya-677ba2286?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)).
+* Abinaya, [Linkedin](www.linkedin.com/in/kheira-abinaya-677ba2286).
